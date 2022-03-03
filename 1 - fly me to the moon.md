@@ -1,16 +1,18 @@
-My non-canonical interpretations of what ideas and concepts represent
+My non-canonical interpretations of what ideas and concepts represent:
 You should figure your own interpretations, but you can use these as a guide to figure out the truth of Evangelion.
 If you simply love Evangelion, then you can slowly find out more of the truth for yourself.  But for those who are struggling to love Mari and Evangelion, I leave these notes for you.
 
 Note:
-Some of these concepts may deviate from the objective truth, but Evangelion is a simple story about learning to connect with others.  As long as you open your heart, appreciate culture and anime like Mari, then it will only be a matter of wishing to figure out the truth.  To completely figure out the truth for yourself, you only need to watch the final scene of `Thrice` and realize what Anno is saying to his fans.
+Some of these concepts may deviate from the objective truth, but Evangelion is a simple story about learning to connect with others.  As long as you open your heart, appreciate culture and anime like Mari, then it will only be a matter of wishing to figure out the truth.  To completely figure out the truth for yourself, you only need to watch the final scene of `Thrice` and realize what Anno is saying to his fans.  I assume you have watched all of NGE+EoE+RoE and are looking to be slightly spoiled.
 
-My thoughts:
+My thoughts on Evangelion concepts:
+Evangelion is a story meant to be understood from our feelings, so I will try to explain concepts in a way such that you can focus on simpler understanding.  You may figure out a better understanding as we compare understandings and as you rewatch Evangelion.  Don't try to overly focus on these concepts for the answers, but instead use them to try to understand the story of the main characters.
+
 Parallels:
-We analyze ourselves by comparing our feelings and actions to those that are like us.   Evangelion constantly asks us to compare characters to each other as well as ourselves to other characters to see if there is any truth to be learned.
+We analyze ourselves by comparing our feelings and actions to those that are like us.   Evangelion constantly asks us to compare characters to each other as well as ourselves to other characters to see if there is any truth to be learned. 
 Evangelion – Dark interpretation:
 They are a representation of monsters and the desires of society forced upon us like shackles binding our true freedom.  The freedom to be who we wish to be.
-Evangelion – Light Interpretation
+Evangelion – Light Interpretation:
 Evangelion contain the souls of those that are most dear to us.  Those that would protect us at any cost.  They might try to bear the pain of the world on their shoulders or try to hide us from the truth to protect us.  We must believe in their pure intentions for their actions.
 Kaworu:
 Kaworu is presented as a conception of an ideal version of Shinji who did not choose a “world with complementary”.  With an origination from a foreign world, it can be difficult for him to understand aspects of a world with complementary.  
