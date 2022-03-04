@@ -46,6 +46,9 @@ to different forms of existence could be mediated by some aspect of the divine, 
 A child-like ability to connect with others around them without rejection or judgement.  A child does 
 not know how to reject others on birth.
 
+### Strength of the Soul/Will:
+If your soul is strong, you can easily regenerate damage if you get hurt.
+
 ### Synchronization Ratio
 The synchronization of the soul of the Eva with the soul of the pilot.  Those of pure soul can pilot 
 Evangelion without suffering.  If the purity of soul is high enough, it is possible to pilot any Evangelion 
@@ -58,8 +61,7 @@ enlightenment, or divinity.
 When sync ratio is high that is when the pilots have lowered their defenses the most.  To connect with 
 others is the ability to get hurt.  And when one is too close a perceived betrayal will hurt the most. 
 If the “purity” of your feelings towards another is high enough, then you can accept everything about
-the other person. No matter what they do or say you can accept it.  If your soul is strong, you can 
-easily regenerate damage if you get hurt.
+the other person. No matter what they do or say you can accept it.  
 
 ### Age
 You notice pilots are all described to be 14.   This is the age where one is between a child and an 
