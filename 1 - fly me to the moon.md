@@ -1,5 +1,6 @@
 ## My non-canonical interpretations of what ideas and concepts represent
-You should figure your own interpretations, but you can use these as a guide as a starting point.
+You can think of this as an ELI5 to Evangelion.  It might not be fully accurate, but most people don't
+need to know fluid dynamics to feel comfortable riding an airplane.
 If you simply love Evangelion, then you can slowly find out more of the truth for yourself.  But for 
 those who are struggling to love Mari and Evangelion, I leave these notes for you.
 
@@ -81,5 +82,3 @@ our existence on our own terms.
 ### A reminder 
 To explore other aspects of evangelion in NGE that many others have explored in the past to determine 
 the truth for themselves.
-
-More exciting secrets to be added in the future!
