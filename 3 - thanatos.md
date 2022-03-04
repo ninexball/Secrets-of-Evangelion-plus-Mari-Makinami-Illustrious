@@ -46,6 +46,31 @@ use to define themselves or the truth of their existence.
 I assume it is a message left by Anno and Studio Khara to please discover who Mari is
 
 To discover the rest of evangelion’s secrets we must look at the final hint Anno left for us the very 
-last scene.  To search for Mari’s true identity is like opening Pandora’s Box.  
+last scene.  To search for Mari’s true identity is like opening Pandora’s Box. 
 
+### Maria Iscariot
+ Fuyutsuki calls her Maria Iscariot, after which Mari shows a stunning change in reaction that indicates
+ some kind of hint to her identity.  Mari accepts Maria as a name she has been addressed by before.
+ 
+ Iscariot refers to Judas Iscariot and thus our first question is Maria = Jesus's mother?
+It is a reference but obviously there should be no physical connection between them and Mari, so
+ it is a clue to look into her identity Maria, or actions of Iscariot and/or Maria as to what this means.
+ 
+### True nature of betrayal
+There are too many theological interpretations of Judas's betrayal.  It is not too helpful to look into them
+because Mari is not very like them at all.  The aspect of Fuyutsuki supporting her implies he understands 
+her nature or plans.
+
+"I would rather betray the world, than let the world betray me"
+        - Cao Cao, Romance of the Three Kingdoms
+
+For me it is easiest to understand from the perspective of Three Kingdoms.  If you believe in your [Truth]
+of your convictions and beliefs more than the truth of the world [Mandate of Heaven], then you can attempt 
+to overthrow their truth if you can prove the strength of your will and abilities.
+
+#### Top 3 betrayals in Evangelion:
+ * Events of EoE as a betrayal of NGE.
+ * In that light, RoE is a betrayal of EoE.
+ * Asuka as a clone
+ 
 After this we will go into very "spoiler-heavy" territory. 
