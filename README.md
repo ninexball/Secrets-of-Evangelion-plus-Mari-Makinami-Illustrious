@@ -10,8 +10,10 @@ I find that the best way to understand Evangelion is through the core message fi
 
 For me the core message is about humans, understanding themselves, their needs, and their relationships with other people.  This is my attempt to unify my understanding of the message starting from Neon Genesis Evangelion (NGE) to End of Evangelion (EoE) to RoE and explore what aspects they have in similar and discuss some of their divergences.
 
-Starting from 1, I'll slowly cover what I think are the themes or concepts of Evangelion.  We will cover first a basic understanding and then slowly go into deeper themes. 
-Starting from 2.1, I'll start adding a glossary of items to describe my personal impression of aspects of the anime like who the characters represent and how they interact with each other.
-Starting from 3, I'll start to reveal what I would say is the secret of the world, and eventually we will get to Anno's last message to his true fans.
+## How to read.  You can look at the raw version if text wrapping is an issue atm.
+* Starting from 1, I'll slowly cover what I think are the themes or concepts of Evangelion.  We will cover first a basic understanding and then slowly go into deeper themes. 
+* Starting from 2.1, I'll start adding a glossary of items to describe my personal impression of aspects of the anime like who the characters represent and how they interact with each other.
+* 3, is some tips to help see the secret of the world in my opinion only
+* 4+5 are spoiler heavy and some speculation
 
-Please do not take ideas without linking to tweet or this page, Thanks!
+### Please do not take ideas without linking to tweet or this page, Thanks!
