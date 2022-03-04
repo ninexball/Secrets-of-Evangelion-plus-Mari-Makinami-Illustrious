@@ -66,7 +66,7 @@ her nature or plans.
 
 For me it is easiest to understand from the perspective of Three Kingdoms.  If you believe in your [Truth]
 of your convictions and beliefs more than the truth of the world [Mandate of Heaven], then you can attempt 
-to overthrow their truth if you can prove the strength of your will and abilities.
+to overthrow their truth.
 
 #### Top 3 betrayals in Evangelion:
  * Events of EoE as a betrayal of NGE.
