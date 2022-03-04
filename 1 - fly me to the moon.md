@@ -8,7 +8,7 @@ those who are struggling to love Mari and Evangelion, I leave these notes for yo
 Some of these concepts may deviate from an objective truth, but Evangelion is a simple story about learning 
 to connect with others.  As long as you open your heart, appreciate life like Mari, then it will only 
 be a matter of wishing to figure out the truth.  To completely figure out the truth for yourself, you 
-only need to watch the final scene of `Thrice` and realize what Anno is saying to his fans.  I assume 
+only need to watch the final scene of RoE Thrice and realize what Anno is saying to his fans.  I assume 
 you have watched all of NGE+EoE+RoE and are looking to be slightly spoiled if you read after this.
 
 ### My thoughts on Evangelion concepts:
