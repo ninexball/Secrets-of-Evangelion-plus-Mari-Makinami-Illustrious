@@ -13,11 +13,13 @@ For more fun, solve most of the mystery for yourself here: [initial tweet](https
 * 4+5 are spoiler heavy and some speculation
 
 ### Notes
-* I find that the best way to understand Evangelion is through the core message first.  Then we can add additional modules or layers to the work.  So this is an attempt to deconstruct the Eva philosophy in terms of my simple understanding.  I hope that you can take things to build your own core message that you get from Evangelion.
+I find that the best way to understand Evangelion is through the core message first.  Then we can add additional modules or layers to the work.  So this is an attempt to deconstruct the Eva philosophy in terms of my simple understanding.  I hope that you can take things to build your own core message that you get from Evangelion.
 
-* For me the core message is about humans, understanding themselves, their needs, and their relationships with other people.  This is my attempt to unify my understanding of the message starting from Neon Genesis Evangelion (NGE) to End of Evangelion (EoE) to RoE and explore what aspects they have in similar and discuss some of their divergences.
-* I know for some with language and culture barrier it may be harder to understand Evangelion.
-* Hopefully, Ukrainian Fans and others around the world will be able to see NGE+EoE+RoE in One Piece
+For me the core message is about humans, understanding themselves, their needs, and their relationships with other people.  This is my attempt to unify my understanding of the message starting from Neon Genesis Evangelion (NGE) to End of Evangelion (EoE) to RoE and explore what aspects they have in similar and discuss some of their divergences.
+
+I know for some with language and culture barrier it may be harder to understand Evangelion.
+
+Hopefully, Ukrainian Fans and others around the world will be able to see NGE+EoE+RoE in One Piece
 * https://www.deepl.com/translator
 
 ### Please do not take ideas without linking to tweet or this page, Thanks!
