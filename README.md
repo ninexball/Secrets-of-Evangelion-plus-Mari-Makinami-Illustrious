@@ -8,9 +8,10 @@ For more fun, solve most of the mystery for yourself here: [initial tweet](https
 
 ## How to read.  You can look at the raw version if text wrapping is an issue atm.
 * With 1 and 2, I'll slowly cover what I think are the themes or concepts of Evangelion.  We will cover first a basic understanding and then slowly go into deeper themes. 
-* 3, is some tips to help see the secret of the world in my opinion only
+* Three is some tips to help see the secret behind the world
 * 4+5 = spoiler heavy and some speculation
 * 7 discusses the open ended nature of train scene
+* 9 My personal thoughts on the ending that Shinji will have based on my interpretation (to be added)
 
 * Extra folder will contain glossary of entries to describe my personal impression of aspects of the anime like who the characters represent and how they interact with each other.
 
