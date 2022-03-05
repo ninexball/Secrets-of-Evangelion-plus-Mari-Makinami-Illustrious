@@ -22,4 +22,4 @@ I know for some with language and culture barrier it may be harder to understand
 Hopefully, Ukrainian Fans and others around the world will be able to see NGE+EoE+RoE in One Piece
 * https://www.deepl.com/translator
 
-### Please do not take ideas without linking to tweet or this page, Thanks!
+### Please do not take ideas without linking to this page, Thanks!
