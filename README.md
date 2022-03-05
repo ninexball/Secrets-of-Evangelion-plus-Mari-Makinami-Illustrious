@@ -10,7 +10,8 @@ For more fun, solve most of the mystery for yourself here: [initial tweet](https
 * Starting from 1, I'll slowly cover what I think are the themes or concepts of Evangelion.  We will cover first a basic understanding and then slowly go into deeper themes. 
 * Starting from 2.1, I'll start adding a glossary of items to describe my personal impression of aspects of the anime like who the characters represent and how they interact with each other.
 * 3, is some tips to help see the secret of the world in my opinion only
-* 4+5 are spoiler heavy and some speculation
+* 4+5 = spoiler heavy and some speculation
+* 7 discusses the open ended nature of train scene
 
 ### Notes
 I find that the best way to understand Evangelion is through the core message first.  Then we can add additional modules or layers to the work.  So this is an attempt to deconstruct the Eva philosophy in terms of my simple understanding.  I hope that you can take things to build your own core message that you get from Evangelion.
