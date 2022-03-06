@@ -16,6 +16,13 @@ We must should attempt to discover ways to understand people without relying onl
 human falsity from words, what remains is the truth of the world.
 
 
+### Sayonara as a charm
+Keep in mind Class-rep has never been shown to be a magician or any kind of impact on reality.  Shinji
+has also no knowledge or agreement with that view.  He told Ayanami that Sayonara is too sad, since it
+is words of departure.  That is his real view.  The true purpose of the "charms" is a reminder that it
+is up to the viewers to materialize Shinji's true wishes.  Or perhaps it is left as an indication of 
+the Staff's desire to show something of their desire to see Asuka reunited with Shinji in some way.
+
 ### Wunder
 A divine magic.  Something beautiful.  For me a child, Wunder was the magic that brought Studio Ghibli 
 worlds like Totoro alive.  
